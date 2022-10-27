@@ -9,5 +9,5 @@ I hope to answer (10 questions)
 6. What rank is Steve Lacy
 7. What rank is grantperez
 8. What rank is Olivia Rodrigo
-9. What rank is Bruno Major
+9. What rank is Bruno Mars
 10. What rank is When in Rome
